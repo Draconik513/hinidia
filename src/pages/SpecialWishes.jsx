@@ -12,7 +12,7 @@ Aku tahu hidup tidak selalu mudah , tapi aku ingin kamu tahu bahwa kamu tidak se
 
 Semoga setiap langkahmu penuh keberkahan , dan setiap impianmu satu per satu menjadi kenyataan 🌠. Kamu punya hati yang tulus, senyum yang menenangkan 😊, dan jiwa yang cantik luar dalam 🌹. Dunia butuh lebih banyak orang sepertimu.
 
-sayaang.. di umur yg baru ini km juga harus jadi pribadi yg baru yaa, jadi lebih mandiri lebih bisa sayang sama diri km sendiri, lebih bisa ngutamain kebahagiaan km sendiri. intinya mulai dari sekarang km harus bahagia terus yaaa ga boleh sedih2 okey?
+sayaang.. di umur yg baru ini kamu juga harus jadi pribadi yg baru yaa, jadi lebih mandiri lebih bisa sayang sama diri km sendiri, lebih bisa ngutamain kebahagiaan km sendiri. intinya mulai dari sekarang km harus bahagia terus yaaa ga boleh sedih2 okey?
 
 Aku ingin kamu tahu bahwa aku percaya padamu sepenuhnya. Kamu kuat, kamu hebat, dan kamu pantas mendapatkan yang terbaik 🏆. Jangan pernah ragukan dirimu sendiri 🙅‍♀️, karena kamu adalah cahaya dalam hidup banyak orang 🌟, termasuk hidupku 💘.
 
